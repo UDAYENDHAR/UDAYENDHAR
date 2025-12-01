@@ -17,6 +17,9 @@
 
 - 📫 How to reach me **smudayendhar@gmail.com +91 7200791765**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fNm5C5eQzGtadIrm01yta7L3S9shmdwK/view?usp=sharing](https://drive.google.com/file/d/1fNm5C5eQzGtadIrm01yta7L3S9shmdwK/view?usp=sharing)
+
+
 - ⚡ Fun fact **I bring complex data to life—and I think I'm funny 😄**
 
 <h3 align="left">Connect with me:</h3>
